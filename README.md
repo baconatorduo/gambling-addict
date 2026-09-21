@@ -1,31 +1,31 @@
 <div align="center">
-
- ![](https://komarev.com/ghpvc/?username=gambling-addict&color=646174&style=flat-square&label=hypnotized)  
-
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Nunito&weight=650&size=25&duration=3150&pause=1000&color=395E76&center=true&vCenter=true&width=435&lines=pokaz+mi+niebo+a+wtedy+ja+;bede+tecza+gdy+otworzysz+swe+oczy;pozwol+mi+swiecic+kiedy+slonca+brak;byc+nadzieja+kiedy+szukasz+pomocy+" alt="Typing SVG" /></a>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/ok.." width="500">
 <br>
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ig" width="550">
-<br>
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/DUDE%20I%20KEEP%20GETTING%20IT%20WRONG%20*HANGS*" width="500">
+ 
+  ![](https://komarev.com/ghpvc/?username=gambling-addict&color=7e1f4d&style=flat-square&label=rotted)  
+<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/Pppskdopasoda" height="450" align="left">
 <br>
 <br>
 
+<table>
+  <tr>
+    <td> 
+
+ㅤ ㅤ 
+ㅤㅤ $${\color{#f4621e}eddieㅤ,}$$ $${\color{#ad978b} ryan }$$ㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤ $${\color{#c12372}15}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-<a href="https://forcas.atabook.org/">
-  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ata" width="175">
-</a>ㅤㅤ
-<a href="https://s-01-ver-bullet.straw.page/">
-  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/straw" width="175">
-</a>ㅤㅤ
-<a href="https://pronouns.cc/@8_11">
-  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/p.cc" width="175">
-</a>
+ㅤㅤㅤㅤㅤ<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/nghhh" width="150">
 
+ㅤㅤㅤ [ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤ ㅤ
 
-<br>
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/hi%20guys" width="550">
+ㅤ ㅤ 
+
+   </td>
+  </tr>
+</table>
 
 
 
@@ -35,8 +35,10 @@
   <summary> </summary>
 
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/zzz" width="200">
+<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/okasd" width="200">
 
 thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards), [fans-town](https://github.com/fans-town), [pt-hall-of-media](https://github.com/pt-hall-of-media) and [pt-loveforfictional](https://github.com/pt-loveforfictional)<br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/OG%20star" width="100">
 </details>
+
+i don't even know why i keep changing names i'm sorry forgive meeeeeee ;-;
